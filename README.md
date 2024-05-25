@@ -1,4 +1,4 @@
 
-https://github.com/Nur-Adnan/Text-Reveal/assets/56475820/20fa2bd1-e238-435a-a785-65375c4cae2b
-Uploading skin care.mp4…
+
+https://github.com/Nur-Adnan/Text-Reveal/assets/56475820/8cbf9d4c-ed51-47f7-b716-13ece132691b
 
